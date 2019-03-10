@@ -1,1 +1,0 @@
-# kararsizkararli.github.io
